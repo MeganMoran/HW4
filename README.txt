@@ -1,2 +1,0 @@
-Megan Moran
-Chicago Cubs
